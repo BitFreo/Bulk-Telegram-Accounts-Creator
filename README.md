@@ -5,7 +5,7 @@ Introducing our cutting-edge Telegram Accounts Generator with APIs! Unlock a wor
 # For password ping me :- https://t.me/bitrige
 ![273633391-76a79d9f-14da-40cb-970a-0600cae09ee6](https://github.com/user-attachments/assets/c0c796bb-c853-446a-ae08-821323208b6d)
 
-
+![IMG_20240809_164256_809](https://github.com/user-attachments/assets/d83e47a8-65cf-4020-b114-92a6a2573ae6)
 
 https://github.com/user-attachments/assets/9471217c-15f0-4214-87cd-c7f0d5e0d518
 
